@@ -28,7 +28,8 @@ Este repositório é uma demonstração. Para entender o fluxo de trabalho, expl
 
 Para mais informações ou para solicitar um serviço de transcrição e documentação, entre em contato.
 
-[Seu Nome/Empresa]
-[Seu Contato (Email/LinkedIn/Website)]
+Vis. Dados Hub
+E-mail: alves8814@gmail.com
+Linkedin: linkedin.com/in/vanessa-p-alves/
 
 
