@@ -76,8 +76,8 @@ uhm', 'ah').
 
 Para discutir seu projeto de transcrição e documentação, entre em contato:
 
-[Seu Nome/Empresa]
-[Seu Email]
-[Seu LinkedIn/Website]
+Vis. Dados Hub
+alves8814@gmail.com
+https://www.linkedin.com/in/vanessa-p-alves/
 
 
